@@ -1,2 +1,2 @@
-# learning-repo
-for learning
+# I love Sinamoka
+
